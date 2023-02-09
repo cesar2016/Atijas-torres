@@ -7,20 +7,20 @@ http://atijastorres.com
 
 
 <p align="center">
-    <img src="https://i.postimg.cc/DytpDLRg/Captura-desde-2023-02-09-17-08-30.png" border="0"> 
+    <img src="https://i.postimg.cc/7ZhsfX0w/Captura-desde-2023-02-09-18-10-43.png" border="0"> 
 </p>   
 <hr>
 <p align="center">
-    <img src="https://i.postimg.cc/T3DFYCnF/Captura-desde-2023-02-09-17-04-18.png" border="0"> 
+    <img src="https://i.postimg.cc/W4J5735y/Captura-desde-2023-02-09-18-10-13.png" border="0"> 
 </p>
 <hr> 
  
 <p align="center">
-    <img src="https://i.postimg.cc/ryHf05yk/Captura-desde-2023-02-09-17-07-44.png" border="0">
+    <img src="https://i.postimg.cc/RF5XpB8Z/Captura-desde-2023-02-09-18-09-28.png" border="0">
 </p>
 <hr>
 <p align="center">
-    <img src="https://i.postimg.cc/s2fL9ykd/Captura-desde-2023-02-09-17-05-49.png" border="0">
+    <img src="https://i.postimg.cc/8cTwDbT8/Captura-desde-2023-02-09-18-08-57.png" border="0">
 </p>
 <hr>
 
